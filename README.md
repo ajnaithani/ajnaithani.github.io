@@ -1,1 +1,1 @@
-# ajnaithani.github.io
+# Personal webpage of Ajeya Naithani.
